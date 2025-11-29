@@ -19,4 +19,6 @@
 CD⠀OU⠀RENARD ⠀ ⠀<img src="https://pixels.crd.co/assets/images/gallery28/fa02eeb6.gif?v=9b219e01"> ⠀ ⠀SHI / HIER
 <p align="center">
 BPDASPD ⠀ ⠀FICTIVE ⠀ ⠀I <3 MY GF DISC
+<p align="center">
+IWCARE ⠀ ⠀ALWAYS EXTREMELY ON EDGE ⠀ ⠀EPISODE PRONE
 </p>
