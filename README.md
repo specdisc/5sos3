@@ -6,7 +6,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/kv9q3k.gif" width="300" height="301"> 
 <p align="center">
->i struck her face until it ran blood.
+>I LOVE TO LOVE UR LOVE MY LOVE!!! ^_^
 </p>
  ⠀ ⠀
 
@@ -16,7 +16,7 @@
 
  ⠀ ⠀
 <p align="center">
-CD⠀ou ⠀renard ⠀ ⠀<img src="https://pixels.crd.co/assets/images/gallery28/fa02eeb6.gif?v=9b219e01"> ⠀ ⠀shi / hier
+CD⠀OU⠀RENARD ⠀ ⠀<img src="https://pixels.crd.co/assets/images/gallery28/fa02eeb6.gif?v=9b219e01"> ⠀ ⠀SHI / HIER
 <p align="center">
-bpdaspd ⠀ ⠀fictive ⠀ ⠀srcmates ok
+BPDASPD ⠀ ⠀FICTIVE ⠀ ⠀I <3 MY GF DISC
 </p>
